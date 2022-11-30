@@ -1,0 +1,73 @@
+# Cartoons/Teen Shows
+
+## Cartoons
+
+- **Avatar: The Last Air-bender**
+- **Gravity Falls**
+- **Samurai Jack**
+- **Star vs The Forces of Evil**
+- **Generator Rex**
+- **Ben 10**
+- Rugrats
+- Dexter's Laboratory
+- Prometheus and Bob
+- Puprle and Brown
+- Angelo's Rules
+- Scooby-Doo
+- Clone Wars
+- Powerpuff Girls
+- Camp Lazlo
+- SpongeBob SquarePants
+- Foster's Home for Imaginary Friends
+- Totally Spies
+- Johnny Bravo
+- Johnny Test
+- Tom and Jerry
+- Cow and Chicken
+- CatDog
+- Looney Tunes
+- Drake & Josh
+- Hey Arnold
+- Kim Possible
+- Phineas and Ferb
+- The Emperor's New School
+- Jimmy Neutron
+- Courage the Cowardly Dog
+- Bear in the Big Blue House
+- Dragon Tales
+- Zoboomafoo
+- Danny Phantom
+- The Flintstones
+- My Life as a Teenage Robot
+- Code Lyoko
+- Codename: Kids Next Door
+- Yu-Gi-Oh
+- Ed, Edd, n Eddy
+- Regular Show
+- MegasXLR
+- Fairly Odd Parents
+- Rocket Power
+- The Wild Thornberrys
+- I Am Weasel
+- My Gym Partner is a Monkey
+- As Told by Ginger
+- Aaah! Real Monsters
+- Marvelous Misadventures of Flapjack
+- Rocko's Modern Life
+- Inspector Gadget
+- Garfield and Friends
+- Popeye
+- Taz-mania
+- American Dragon: Jake Long
+- Fish Hooks
+- Lilo and Stitch
+- Pingu
+- Shaun the Sheep
+- Life with Loopy
+
+## Teen Shows
+
+- Sonny with a chance
+- The Suite Life
+- The Suite Life of Zack and Cody
+- iCarly
