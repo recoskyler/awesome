@@ -8,6 +8,7 @@
 - **Star vs The Forces of Evil**
 - **Generator Rex**
 - **Ben 10**
+- **Detective Gadget**
 - Rugrats
 - Dexter's Laboratory
 - Prometheus and Bob
