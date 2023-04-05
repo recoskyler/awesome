@@ -106,6 +106,7 @@
 
 ## Mystery
 
+- **The Game (1997)**
 - **Frantic (1988)**
 - **The Prestige**
 - Sherlock Holmes
